@@ -25,6 +25,8 @@ If im sitting alone, then you're free to c+h without asking! If i'm already with
 
 DO NOT copy my skins, ASK for inspo, please. It's silly but it makes me highly uncomfortable. 
 
+This account isn't JUST for follow spam, i still use it around, but do block me if the follow is unwanted.
+
 </details>
 ‎  
 ‎  
