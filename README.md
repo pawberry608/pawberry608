@@ -27,7 +27,7 @@ DO NOT copy my skins, ASK for inspo, please. It's silly but it makes me highly u
 
 This account isn't JUST for follow spam, i still use it around, but do block me if the follow is unwanted.
 
-I enjoy dating sims & visual novels, great god grove, slenderverse & crp, SOAD, rayman, dunmesh, LMK, slashers nd some other stuff!
+I enjoy dating sims & visual novels, great god grove, slenderverse & crp, SOAD, rayman, dunmesh, LMK, STH nd some other stuff!
 
 I'm a yumeshipper! ^_^ i yumeship with my friend's oc Iornidas ,. just needed 2 mention him.
 
