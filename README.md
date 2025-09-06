@@ -17,7 +17,7 @@
 
 <img width="213" height="52" alt="image" src="https://github.com/user-attachments/assets/9148b6f9-b341-4e86-91f9-32628d4d2d4c" /> 
 
-I normally dont initiate talks, i'm very quiet and a bit awkward too. 
+I normally dont initiate talks, i'm very quiet and a bit awkward too. PT-BR/eng.
 
  I'm offtab most of the times, so w2i ALWAYS unless its obvious i'm ontab.
 
